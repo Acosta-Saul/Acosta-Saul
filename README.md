@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sauldavid2003es@gmail.com**
 
-- ⚡ Fun fact :- Food, Music, Study, Videogames🎵 are the reasons to live.
+- ⚡ Fun fact : Food, Music, Study, Videogames🎵 are the reasons to live.
 
 <br>
 
